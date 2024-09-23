@@ -1,4 +1,4 @@
-# Hello! I'm JPRam89! Full Stack Developer
+# Hello! I'm JPRam89! Full Stack junior Developer 
 
 ## About me
 
